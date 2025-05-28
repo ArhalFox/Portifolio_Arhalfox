@@ -6,9 +6,12 @@
 
 🕹️ **Gamer raiz e presença constante em mundos virtuais.** 
 
-🦊 **Vtuber com personalidade única.**
+🦊 **Vtuber com personalidade única.**:
+
+
+_**VISITE MEU PROTIFÓLIO**_
 
 _Clique aqui :_ [Portifólio](https://arhalfox.github.io/Portifolio_Arhalfox/) 
 
-![](https://media.tenor.com/FBhjRge908MAAAAm/joker.webp) 
 
+![](https://media.tenor.com/_SekInP13ZsAAAAi/piyopiyo-baby-chicken.gif) 
